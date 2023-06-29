@@ -1,3 +1,3 @@
-# ** Nathalia Guerrero**
+# **Nathalia Guerrero**
 ## Colombia 
 Colombia :colombia: 
