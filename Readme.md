@@ -1,1 +1,1 @@
-Daniel Chacon - Diana Galeano 
+Daniel Chacon - Diana Galeano - Nathalia Guerrero 
